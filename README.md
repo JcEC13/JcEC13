@@ -6,4 +6,5 @@ Although I do not have work experience directly related to my studies, I develop
 Currently, I am looking for job opportunities that will allow me to continue developing my skills in this exciting field. If you are looking for someone with skills in data analysis, indicator measurement and teamwork, do not hesitate to contact me! I would love to learn about your projects and contribute my knowledge to achieve the proposed objectives.
 
 My email is: juancarlosespiritucampos@gmail.com
+
 My LinkedIn is: https://www.linkedin.com/in/juan-carlos-espiritu-campos-ab22971a9/
